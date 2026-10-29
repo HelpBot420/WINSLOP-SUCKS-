@@ -1,0 +1,2 @@
+# WINSLOP-SUCKS-
+linux better
