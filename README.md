@@ -1,2 +1,2 @@
 # WINSLOP-SUCKS-
-linux better
+linux is better
